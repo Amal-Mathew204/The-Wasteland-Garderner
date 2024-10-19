@@ -1,2 +1,2 @@
-# The-Wasteland-Gardener
+# The Wasteland Gardener
 
